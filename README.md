@@ -1,2 +1,2 @@
 # boostella-site
-La pate a tartiner qui combine naturel et énergétique
+La pâte à tartiner qui combine naturel et énergétique
